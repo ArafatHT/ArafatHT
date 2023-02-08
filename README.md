@@ -1,4 +1,4 @@
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=ARAFAT+HOSSAIN+SHIFAT;I+LOVE+ALLHA;KING+OFF+SPAMMING%3A)+BRAND;SO+BE+CAREFUL;It's+ARAFAT+BRAND" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=ARAFAT+HOSSAIN+SHIFAT;I+LOVE+ALLHA;KING+OFF+SPAMMING%3A);SO+BE+CAREFUL;It's+ARAFAT's+BRAND" alt="Typing SVG" /></a>
 <p align="center"><img src="https://img.shields.io/badge/MADE%20IN BANGLADESHI-SPAMMAR AND PROGRAMMER-green?colorA=%23ff0000&colorB=%23017e40&style=flat-square">
 
 <h3 align="center">
@@ -11,7 +11,7 @@
 
 </h3>
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+PICCI-ARAFAT+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+FINISHERxGANG+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines= Hello+World%2C+I'm+PICCI-ARAFAT+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+FINISHERxGANG+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩)](https://git.io/typing-svg)
 
 𝚅𝙸𝚂𝙸𝚃𝙾𝚁𝚂 𝙲𝙾𝚄𝙽𝚃
 
@@ -27,7 +27,7 @@
 <h3><b><i>🏆 Github Statistics :</i></b></h3>
 
  
-- 😏 𝐍𝐀𝐌𝐄:- PICCI-ARAFAT
+- 😏 𝐍𝐀𝐌𝐄:- 𝐏𝐈𝐂𝐂𝐈-𝐀𝐑𝐀𝐅𝐀𝐓
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
@@ -39,7 +39,7 @@
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- ❤ 𝐋𝐎𝐕𝐄𝐑:- FxG
+- ❤ 𝐋𝐎𝐕𝐄𝐑:- 𝐅𝐱𝐆
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
@@ -51,11 +51,11 @@
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- ARAFAT HOSSAIN SHIFAT (CareLess)
+- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- 𝐀𝐑𝐀𝐅𝐀𝐓 𝐇𝐎𝐒𝐒𝐀𝐈𝐍 𝐒𝐇𝐈𝐅𝐀𝐓 (CareLess)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐏𝐀𝐆𝐄:- ARAFAT HOSSAIN SHIFAT (ARA)
+- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐏𝐀𝐆𝐄:- 𝐀𝐑𝐀𝐅𝐀𝐓 𝐇𝐎𝐒𝐒𝐀𝐈𝐍 𝐒𝐇𝐈𝐅𝐀𝐓 (ARA)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
