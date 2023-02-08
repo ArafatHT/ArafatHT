@@ -1,4 +1,4 @@
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=ARAFAT+HOSSAIN+SHIFAT;I+LOVE+ALLHA;KING+OFF+SPAMMING%3A);SO+BE+CAREFUL;It's+ARAFAT's+BRAND" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=ARAFAT+HOSSAIN+SHIFAT;I+LOVE+ALLAH;KING+OFF+SPAMMING%3A);SO+BE+CAREFUL;It's+ARAFAT's+BRAND" alt="Typing SVG" /></a>
 <p align="center"><img src="https://img.shields.io/badge/MADE%20IN BANGLADESHI-SPAMMAR AND PROGRAMMER-green?colorA=%23ff0000&colorB=%23017e40&style=flat-square">
 
 <h3 align="center">
