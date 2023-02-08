@@ -26,6 +26,16 @@
 
 <h3><b><i>🏆 Github Statistics :</i></b></h3>
 
+
+<a href="https://github.com/ArafatHT"><img title="trophy" src="https://github-profile-trophy.vercel.app/?username=ArafatHT&theme=monokai"></a>
+
+
+![ArafatHT's GitHub stats](https://github-readme-stats.vercel.app/api?username=ArafatHT&show_icons=true&theme=chartreuse-dark)  
+
+![ArafatHT GitHub Streak](https://github-readme-streak-stats.herokuapp.com/?user=ArafatHT&theme=radical)
+
+<img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
+
  
 - 😏 𝐍𝐀𝐌𝐄:- 𝐏𝐈𝐂𝐂𝐈-𝐀𝐑𝐀𝐅𝐀𝐓
  
