@@ -37,7 +37,7 @@
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
  
-- 😏 𝐍𝐀𝐌𝐄:- 𝐏𝐈𝐂𝐂𝐈-𝐀𝐑𝐀𝐅𝐀𝐓
+- 😏 𝐍𝐀𝐌𝐄:- 𝐀𝐑𝐀𝐅𝐀𝐓 𝐇𝐎𝐒𝐒𝐀𝐈𝐍 𝐒𝐇𝐈𝐅𝐀𝐓
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
@@ -61,11 +61,11 @@
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- 𝐀𝐑𝐀𝐅𝐀𝐓 𝐇𝐎𝐒𝐒𝐀𝐈𝐍 𝐒𝐇𝐈𝐅𝐀𝐓 (CareLess)
+- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- https://www.facebook.com/arafatht2017
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐏𝐀𝐆𝐄:- 𝐀𝐑𝐀𝐅𝐀𝐓 𝐇𝐎𝐒𝐒𝐀𝐈𝐍 𝐒𝐇𝐈𝐅𝐀𝐓 (ARA)
+- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐏𝐀𝐆𝐄:- https://www.facebook.com/htarafat2017
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
