@@ -61,11 +61,11 @@
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- https://www.facebook.com/arafatht2017
+- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- [ARAFAT] (https://www.facebook.com/arafatht2017)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐏𝐀𝐆𝐄:- https://www.facebook.com/htarafat2017
+- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐏𝐀𝐆𝐄:- [ARAFAT] (https://www.facebook.com/htarafat2017)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
