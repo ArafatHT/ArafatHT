@@ -75,15 +75,15 @@
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- (https://www.facebook.com/arafatht2017)
+- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- [𝐀𝐑𝐀𝐅𝐀𝐓 𝐇𝐎𝐒𝐒𝐀𝐈𝐍 𝐒𝐇𝐈𝐅𝐀𝐓](https://www.facebook.com/arafatht2017)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐏𝐀𝐆𝐄:- (https://www.facebook.com/htarafat2017)
+- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐏𝐀𝐆𝐄:- [𝐀𝐑𝐀𝐅𝐀𝐓 𝐇𝐎𝐒𝐒𝐀𝐈𝐍 𝐒𝐇𝐈𝐅𝐀𝐓](https://www.facebook.com/htarafat2017)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 💻𝐆𝐈𝐓𝐇𝐔𝐁:- [ArafatHT](https://github.com/ArafatHT)
+- 💻𝐆𝐈𝐓𝐇𝐔𝐁:- [𝐀𝐑𝐀𝐅𝐀𝐓 𝐇𝐓](https://github.com/ArafatHT)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
